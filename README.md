@@ -1,0 +1,1 @@
+# Mostovoy_Alexandr_dz_dz7.py
